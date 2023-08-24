@@ -1,5 +1,3 @@
-Techniques for Cultivating a Strengths-Focused Mindset
-=========================================================================================================
 
 Developing a strengths-focused mindset is essential for maximizing your potential and achieving greater success at work. In this chapter, we will explore techniques for cultivating a strengths-focused mindset.
 

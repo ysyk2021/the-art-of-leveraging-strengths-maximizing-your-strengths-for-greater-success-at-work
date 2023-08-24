@@ -1,5 +1,3 @@
-Utilizing Feedback and Coaching
-======================================================================
 
 Developing your strengths is an essential part of maximizing your success at work. In this chapter, we will discuss how to utilize feedback and coaching to develop your strengths.
 

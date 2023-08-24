@@ -1,5 +1,3 @@
-Identifying Your Personal Strengths
-==================================================================
 
 Identifying your personal strengths is essential for maximizing your potential and achieving greater success at work. In this chapter, we will explore strategies for identifying your personal strengths.
 

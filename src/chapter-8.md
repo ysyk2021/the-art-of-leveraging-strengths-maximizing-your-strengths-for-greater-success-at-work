@@ -1,5 +1,3 @@
-Chapter 8: Creating a Strengths-Focused Culture
-===============================================
 
 Creating a strengths-focused culture in the workplace is essential for maximizing the potential of individuals and teams. In this chapter, we will explore strategies for encouraging proactive strength development, providing training and professional development opportunities, fostering collaboration and teamwork, and celebrating strengths-based achievements.
 

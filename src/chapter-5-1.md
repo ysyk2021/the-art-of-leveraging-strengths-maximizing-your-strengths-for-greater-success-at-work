@@ -1,5 +1,3 @@
-Identifying Opportunities to Use Your Strengths at Work
-===============================================================================================================
 
 Identifying opportunities to use your strengths at work is an essential part of maximizing your success. In this chapter, we will discuss how to identify opportunities to use your strengths at work.
 

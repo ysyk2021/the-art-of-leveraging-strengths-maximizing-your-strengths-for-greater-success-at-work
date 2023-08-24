@@ -1,5 +1,3 @@
-Recognizing How Strengths Contribute to Success
-================================================================================================
 
 Understanding how strengths contribute to success is essential for maximizing potential in the workplace. In this chapter, we will explore the ways in which strengths can lead to greater satisfaction, motivation, and success.
 

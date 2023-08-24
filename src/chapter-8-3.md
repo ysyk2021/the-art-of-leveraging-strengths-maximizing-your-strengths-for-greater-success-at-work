@@ -1,5 +1,3 @@
-Fostering Collaboration and Teamwork
-=====================================================================================
 
 Fostering collaboration and teamwork is an essential strategy for creating a strengths-focused culture in the workplace. In this chapter, we will explore the importance of collaboration and teamwork in creating a strengths-focused culture.
 

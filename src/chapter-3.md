@@ -1,5 +1,3 @@
-Chapter 3: Developing a Strengths-Focused Mindset
-=================================================
 
 Developing a strengths-focused mindset is essential for maximizing potential and achieving greater success. In this chapter, we will explore techniques for cultivating a strengths-focused mindset, utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing empathy and compassion through strengths.
 

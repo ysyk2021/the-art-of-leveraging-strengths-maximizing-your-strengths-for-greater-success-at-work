@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Strengths
-======================================================================================================
 
 Developing empathy and compassion through strengths is an essential aspect of cultivating a strengths-focused mindset. In this chapter, we will explore how individuals can leverage their strengths to develop empathy and compassion towards others.
 

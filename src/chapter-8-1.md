@@ -1,5 +1,3 @@
-Encouraging Proactive Strength Development Across the Organization
-===================================================================================================================
 
 Creating a strengths-focused culture is essential for organizations that want to achieve greater success. In this chapter, we will explore strategies for creating a strengths-focused culture and encouraging proactive strength development across the organization.
 

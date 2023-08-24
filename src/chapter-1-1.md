@@ -1,5 +1,3 @@
-Understanding the Importance of Leveraging Strengths
-=============================================================================
 
 The ability to leverage one's strengths is a key factor in achieving greater success at work and personal life. In this chapter, we will explore the importance of understanding and leveraging one's strengths.
 

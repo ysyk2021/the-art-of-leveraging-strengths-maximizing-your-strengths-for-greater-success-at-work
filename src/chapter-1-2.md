@@ -1,5 +1,3 @@
-Common Misconceptions About Strengths
-==============================================================
 
 There are several common misconceptions about strengths that can prevent individuals from maximizing their potential and achieving greater success at work. In this chapter, we will explore some of these misconceptions.
 

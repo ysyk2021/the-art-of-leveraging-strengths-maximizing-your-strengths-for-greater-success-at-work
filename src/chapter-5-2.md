@@ -1,5 +1,3 @@
-Finding Ways to Apply Your Strengths to Your Job
-=======================================================================================================
 
 Maximizing your strengths in the workplace is essential for achieving greater success and job satisfaction. In this chapter, we will explore strategies for finding ways to apply your strengths to your job.
 

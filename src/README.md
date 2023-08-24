@@ -1,4 +1,4 @@
-# Introduction
+
 
 Leveraging strengths is essential for maximizing success at work. That's where "The Art Of Leveraging Strengths: Maximizing Your Strengths For Greater Success At Work" comes in.
 

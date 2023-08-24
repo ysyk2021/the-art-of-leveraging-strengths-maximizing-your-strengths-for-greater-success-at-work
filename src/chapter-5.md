@@ -1,5 +1,3 @@
-Chapter 5: Maximizing Your Strengths in the Workplace
-=====================================================
 
 Maximizing your strengths in the workplace is essential for achieving greater success and job satisfaction. In this chapter, we will explore strategies for identifying opportunities to use your strengths at work, finding ways to apply your strengths to your job, communicating your strengths to your employer, and fostering collaboration with coworkers.
 

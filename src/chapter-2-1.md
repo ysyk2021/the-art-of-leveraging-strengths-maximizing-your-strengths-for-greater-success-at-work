@@ -1,5 +1,3 @@
-Overview of Strengths
-====================================================
 
 Defining strengths is an important step towards maximizing your potential and achieving greater success at work. In this chapter, we will provide an overview of strengths and how to identify them.
 

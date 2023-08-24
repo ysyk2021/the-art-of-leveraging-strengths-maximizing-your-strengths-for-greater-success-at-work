@@ -1,5 +1,3 @@
-Chapter 2: Defining Strengths
-=============================
 
 Defining strengths is an essential part of maximizing potential and achieving greater success. In this chapter, we will explore an overview of strengths, understanding the science behind strengths, and identifying your personal strengths.
 

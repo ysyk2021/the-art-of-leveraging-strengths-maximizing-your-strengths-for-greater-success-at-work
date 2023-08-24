@@ -1,5 +1,3 @@
-Celebrating Strengths-Based Achievements
-=========================================================================================
 
 Celebrating strengths-based achievements is an important strategy for creating a strengths-focused culture in the workplace. In this chapter, we will explore why it's important to celebrate strengths-based achievements, as well as strategies for doing so.
 

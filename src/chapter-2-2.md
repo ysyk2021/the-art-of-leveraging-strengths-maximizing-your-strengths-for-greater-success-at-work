@@ -1,5 +1,3 @@
-Understanding the Science Behind Strengths
-=========================================================================
 
 Understanding what strengths are and how they work is essential for maximizing your potential and achieving greater success at work. In this chapter, we will explore the science behind strengths and how to define them effectively.
 

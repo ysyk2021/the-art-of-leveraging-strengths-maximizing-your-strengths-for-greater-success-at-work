@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-=========================================================================================
 
 Developing a strengths-focused mindset is essential for achieving greater success in the workplace. In this chapter, we will explore strategies for setting realistic goals and objectives that leverage your strengths.
 

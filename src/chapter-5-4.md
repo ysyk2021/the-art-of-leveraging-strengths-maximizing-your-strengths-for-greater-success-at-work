@@ -1,5 +1,3 @@
-Fostering Collaboration with Coworkers
-=============================================================================================
 
 Maximizing your strengths in the workplace is essential for achieving greater success and job satisfaction. In this chapter, we will explore strategies for fostering collaboration with coworkers to maximize your strengths and achieve greater impact.
 

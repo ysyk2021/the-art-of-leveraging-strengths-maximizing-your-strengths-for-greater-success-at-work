@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-==================================================================================================
 
 Developing a strengths-focused mindset is an essential part of maximizing your success at work. In this chapter, we will discuss how to utilize positive self-talk and visualization to develop a strengths-focused mindset.
 

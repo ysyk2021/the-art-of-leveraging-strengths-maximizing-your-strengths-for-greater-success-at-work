@@ -1,5 +1,3 @@
-Developing Strategies for Managing Weaknesses
-============================================================================================
 
 Managing weaknesses and challenges is an important part of maximizing potential and achieving success. In this chapter, we will explore strategies for developing effective strategies for managing weaknesses.
 

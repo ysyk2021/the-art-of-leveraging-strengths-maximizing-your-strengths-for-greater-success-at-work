@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs
-============================================================================
 
 Addressing limiting beliefs is an important aspect of understanding the power of strengths. In this chapter, we will explore strategies for addressing limiting beliefs and leveraging your strengths more effectively.
 

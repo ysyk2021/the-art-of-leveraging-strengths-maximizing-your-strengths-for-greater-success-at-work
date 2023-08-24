@@ -1,5 +1,3 @@
-Communicating Your Strengths to Your Employer
-=====================================================================================================
 
 Communicating your strengths to your employer is an essential part of maximizing your success at work. In this chapter, we will discuss how to effectively communicate your strengths to your employer.
 
