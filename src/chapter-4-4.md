@@ -1,5 +1,4 @@
-Chapter 4: Addressing Limiting Beliefs
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of addressing limiting beliefs and how they can hinder the effective utilization of strengths for greater success at work. By identifying and challenging these beliefs, individuals can overcome self-imposed limitations and unlock their full potential.
 

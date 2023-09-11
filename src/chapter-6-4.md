@@ -1,5 +1,4 @@
-Chapter 4: Fostering Continuous Learning and Improvement
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering continuous learning and improvement when leveraging strengths. By embracing a mindset of lifelong learning and actively seeking growth opportunities, individuals can enhance their strengths, expand their capabilities, and achieve greater success in the workplace.
 

@@ -1,5 +1,4 @@
-Chapter 5: Developing Empathy and Compassion through Strengths
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how to develop empathy and compassion as strengths and leverage them for greater success at work. Empathy and compassion are essential skills that enable individuals to understand and connect with others on a deeper level. By cultivating these strengths, professionals can enhance their relationships, communication, and overall effectiveness in the workplace.
 

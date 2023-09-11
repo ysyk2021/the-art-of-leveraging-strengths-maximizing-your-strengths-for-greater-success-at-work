@@ -1,5 +1,4 @@
-Chapter 17: Celebrating Strengths-Based Achievements
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of celebrating strengths-based achievements in maximizing your success at work. By acknowledging and celebrating your accomplishments that stem from leveraging your strengths, you can boost motivation, reinforce positive behaviors, and inspire continued growth and success.
 

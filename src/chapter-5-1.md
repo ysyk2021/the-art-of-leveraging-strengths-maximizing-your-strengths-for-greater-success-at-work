@@ -1,5 +1,4 @@
-Chapter 8: Identifying Opportunities to Use Your Strengths at Work
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for identifying opportunities to leverage your strengths effectively at work. Recognizing and capitalizing on these opportunities allows individuals to maximize their potential, enhance job satisfaction, and achieve greater success in their professional endeavors.
 

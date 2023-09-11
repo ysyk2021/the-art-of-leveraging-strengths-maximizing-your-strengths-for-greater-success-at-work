@@ -1,5 +1,4 @@
-Chapter 3: Finding Ways to Apply Your Strengths to Your Job
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for identifying and finding ways to apply your strengths to your job. By leveraging your unique abilities in the workplace, you can enhance your performance, job satisfaction, and overall success.
 

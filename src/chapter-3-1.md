@@ -1,5 +1,4 @@
-Chapter 12: Techniques for Cultivating a Strengths-Focused Mindset
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques for cultivating a strengths-focused mindset in order to maximize your strengths and achieve greater success at work. By shifting your focus towards your strengths, you can unlock your full potential, boost confidence, and create a positive and empowering work environment.
 

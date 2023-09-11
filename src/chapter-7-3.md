@@ -1,5 +1,4 @@
-Chapter 7: Overcoming Challenges and Obstacles
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for overcoming challenges and obstacles that may arise on the path to leveraging strengths and achieving greater success at work. Challenges and obstacles are inevitable in any professional journey, but with the right mindset and approach, they can be transformed into opportunities for growth and achievement.
 

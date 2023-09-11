@@ -1,5 +1,4 @@
-Chapter 11: Fostering Resilience and Perseverance
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering resilience and perseverance in maximizing your strengths and achieving greater success at work. Resilience and perseverance are crucial qualities that help individuals overcome challenges, adapt to change, and maintain a positive mindset even in the face of setbacks.
 

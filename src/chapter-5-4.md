@@ -1,5 +1,4 @@
-Chapter 9: Fostering Collaboration with Coworkers
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for fostering collaboration with coworkers to maximize the benefits of leveraging strengths and achieve greater success in the workplace. Collaborating effectively with colleagues allows for the exchange of ideas, complementary skill sets, and a synergistic work environment.
 

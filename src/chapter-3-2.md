@@ -1,5 +1,4 @@
-Chapter 10: Utilizing Positive Self-Talk and Visualization
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the power of positive self-talk and visualization as tools for maximizing your strengths and achieving greater success at work. By harnessing the potential of your thoughts and imagination, you can enhance motivation, confidence, and overall performance.
 

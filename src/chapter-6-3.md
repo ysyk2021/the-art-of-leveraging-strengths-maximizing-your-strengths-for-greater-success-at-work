@@ -1,5 +1,4 @@
-Chapter 4: Utilizing Feedback and Coaching
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the critical role of feedback and coaching in maximizing your strengths for greater success at work. By embracing feedback and seeking guidance from coaches or mentors, you can gain valuable insights, refine your strengths, and unlock your full potential.
 

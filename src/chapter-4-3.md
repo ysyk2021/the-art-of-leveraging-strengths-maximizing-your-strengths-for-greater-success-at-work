@@ -1,5 +1,4 @@
-Chapter 5: Analyzing the Impact of Strengths on Individuals and Organizations
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound impact that leveraging strengths can have on both individuals and organizations. By recognizing and harnessing the power of strengths, individuals can unlock their full potential, while organizations can create a culture of excellence and drive greater success.
 

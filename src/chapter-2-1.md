@@ -1,5 +1,4 @@
-Chapter 1: Overview of Strengths
-================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of strengths and their significance in achieving greater success at work. Understanding the concept of strengths and how to leverage them effectively is essential for maximizing your potential and unlocking exceptional performance.
 

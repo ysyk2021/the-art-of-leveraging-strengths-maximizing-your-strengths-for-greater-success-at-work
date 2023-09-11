@@ -1,5 +1,4 @@
-Chapter 3: Identifying Your Personal Strengths
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the process of identifying your personal strengths. By gaining a deep understanding of your unique talents and abilities, you can leverage them effectively to achieve greater success at work.
 

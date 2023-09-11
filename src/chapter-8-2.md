@@ -1,5 +1,4 @@
-Chapter 18: Providing Training and Professional Development Opportunities
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of providing training and professional development opportunities in maximizing your strengths for greater success at work. By investing in ongoing learning and growth, organizations can empower individuals to enhance their skills, expand their knowledge, and leverage their strengths effectively.
 

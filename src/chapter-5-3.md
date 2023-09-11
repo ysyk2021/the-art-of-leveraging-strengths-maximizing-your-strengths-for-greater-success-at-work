@@ -1,5 +1,4 @@
-Chapter 5: Communicating Your Strengths to Your Employer
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of effectively communicating your strengths to your employer. By articulating and demonstrating your unique abilities, you can enhance your professional brand, foster meaningful connections, and create opportunities for greater success at work.
 

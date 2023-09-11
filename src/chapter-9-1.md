@@ -1,5 +1,4 @@
-Chapter 14: Tracking Progress and Measuring Results
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of tracking progress and measuring results when leveraging your strengths for greater success at work. Effective tracking and measurement techniques enable you to monitor your growth, identify areas for improvement, and make informed decisions to maximize your strengths.
 

@@ -1,5 +1,4 @@
-Chapter 2: The Benefits of Focusing on Strengths Rather Than Weaknesses
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits of shifting our focus from weaknesses to strengths in the pursuit of greater success at work. By leveraging our natural talents and abilities, we can unlock our full potential and achieve unparalleled levels of performance and fulfillment.
 

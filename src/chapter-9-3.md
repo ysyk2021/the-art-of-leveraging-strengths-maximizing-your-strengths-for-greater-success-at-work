@@ -1,5 +1,4 @@
-Chapter 16: Continuous Learning and Improvement
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of continuous learning and improvement in maximizing your strengths for greater success at work. By embracing a mindset of ongoing growth and development, you can enhance your skills, expand your knowledge, and continuously optimize your performance.
 

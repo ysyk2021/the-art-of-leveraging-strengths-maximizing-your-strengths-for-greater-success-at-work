@@ -1,5 +1,4 @@
-Chapter 6: Developing Strategies for Managing Weaknesses
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for effectively managing weaknesses and transforming them into opportunities for growth and success. While leveraging strengths is vital for professional success, it is equally important to address and manage weaknesses to maximize overall performance at work.
 

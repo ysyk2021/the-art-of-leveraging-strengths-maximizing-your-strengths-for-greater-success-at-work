@@ -1,5 +1,4 @@
-Chapter 3: Understanding the Principles of Strength Development
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the fundamental principles of strength development. By understanding these principles, you can navigate the journey of maximizing your strengths and achieving greater success at work.
 

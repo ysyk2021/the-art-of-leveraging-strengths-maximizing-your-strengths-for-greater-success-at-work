@@ -1,5 +1,4 @@
-Chapter 13: Adapting to Changes in the Workplace
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for adapting to changes in the workplace while maximizing your strengths and achieving greater success. In today's fast-paced and ever-evolving work environments, the ability to adapt is crucial for maintaining productivity, embracing opportunities, and thriving amidst change.
 

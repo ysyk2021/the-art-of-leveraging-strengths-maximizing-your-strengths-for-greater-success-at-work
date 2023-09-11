@@ -1,5 +1,4 @@
-Chapter 2: Understanding the Science Behind Strengths
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the science behind strengths and explore the research and theories that underpin their effectiveness in achieving greater success at work. Understanding the scientific foundations of strengths can provide valuable insights into why leveraging them is a powerful strategy for personal and professional growth.
 
